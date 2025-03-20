@@ -1,3 +1,3 @@
 - Moew
 
-![image](https://github.com/user-attachments/assets/a075e396-902e-4cb7-a37c-8e2aa4ec28b1)
+![GIF_20250320_141046_472](https://github.com/user-attachments/assets/4f7ec46a-43aa-4f90-a857-df3d9a731001)
